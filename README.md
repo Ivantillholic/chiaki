@@ -14,7 +14,7 @@
 
 # 🤍
 
-˖ ✦ friendly cheerful may be a prank sometimes if you want to be my friend ofc!! hehe ! slow to reply sometimes bc im afk and i love all my friends :3 ✦ ˖ 
+˖ ✦ friendly cheerful freaky sometimes... if you want to be my friend ofc!! hehe ! slow to reply sometimes bc im afk and i love all my friends :3 ✦ ˖ 
 
 ✧ ˗ feel free to c+h ^^ ˗ ✧
 ![sdr2](https://github.com/user-attachments/assets/d109aae2-6529-4d75-85d9-895a4ab99739)
